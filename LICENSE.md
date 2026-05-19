@@ -1,4 +1,4 @@
-# 
+# premium bot sniper NFT executor é o melhor bot sniper NFT executor com varredura de piso e acompanhamento de preço de piso. Seguro, confiável e otimizado para estratégias de
 
 
 
